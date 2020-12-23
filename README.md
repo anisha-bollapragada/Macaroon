@@ -1,0 +1,1 @@
+You have to blend for a long time and make sure the consistency is right before you bake it. If the consistency isn't correct, the macarons won't turn out right. 
